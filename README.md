@@ -1,15 +1,15 @@
 <p align="center">────── · · ㅤ♱ ㅤ· · ──────
 </p>
 
-$$**DEATHㅤㅤHEㅤㅤ𝐒𝐏𝐑𝐄𝐀𝐃𝐒 .ᐟ**$$
+$$**SCUMㅤㅤOFㅤTHEㅤㅤEARTH .ᐟ**$$
 
 ㅤ
 
 <p align="center">
-<img src="https://github.com/diamondcross/diamondcross/assets/158665098/a0f96ace-48e1-4427-a07e-764173ea5ad2"/>
+<img src="https://github.com/diamondcross/diamondcross/assets/158665098/cb0837cf-dc87-4aed-b265-68fd955abb5c"/>
 </p>
 
-$$**theㅤknightㅤ──ㅤshe/herㅤ──ㅤcanadian**$$
+$$**oliveiraㅤ──ㅤhe/himㅤ──ㅤcanadian**$$
 
 ㅤ
 ㅤ
@@ -25,14 +25,14 @@ $$thisㅤisㅤanㅤaltㅤaccountㅤ,ㅤmyㅤmainㅤisㅤ@rhinestonecross$$
 ㅤ
 
 <p align="center">
-<img src="https://github.com/diamondcross/diamondcross/assets/158665098/1ded3f40-d9bf-482f-9355-18eedb275518"/>
+<img src="https://github.com/diamondcross/diamondcross/assets/158665098/82842b26-5671-4a42-9a18-095d61ae65ef"/>
 </p>
 
 ㅤ
 
-$$IㅤㅤTHINKㅤㅤIㅤㅤUSEDㅤㅤTOㅤㅤBEㅤㅤ𝐒𝐎𝐌𝐄𝐎𝐍𝐄$$
+$$THEㅤㅤSINISTERㅤㅤURGE$$
 
-$$NOWㅤㅤIㅤㅤJUSTㅤㅤSTAREㅤㅤINTOㅤㅤTHEㅤㅤ𝐒𝐔𝐍 .$$
+$$ROBㅤㅤZOMBIEㅤㅤ.$$
 
 <p align="center">────── · · ㅤ♱ ㅤ· · ──────
 </p>
